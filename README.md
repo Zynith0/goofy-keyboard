@@ -1,0 +1,1 @@
+This is where I'm going to be uploading files for my keyboard I'm making! You can use any of these for personal use, but don't use my files as something to sell. You can use them as a base and edit them, but don't take the exact files and make a product out of them.
